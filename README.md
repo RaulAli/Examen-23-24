@@ -1,5 +1,2 @@
-
-Alex Martinez Juan
-
-Laura Albert Borrell
+Raúl Aliaga Torró
 
